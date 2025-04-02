@@ -39,3 +39,6 @@ we expect you to complete the project within 4 days from the start date. if the 
 ### **contact:**
 
 you can reach out for any questions or clarifications via **whatsapp** (+91-8368246974) or **email** (hello@glitch.house).
+
+you can reach out for any questions or clarifications via **whatsapp** (+91-8368246974) or **email** (hello@glitch.house).
+
